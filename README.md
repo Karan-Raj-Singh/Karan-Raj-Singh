@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Karan-Raj-Singh
-- 👀 I’m interested in  Data Analysis
+- 👀 I’m interested in  Financial Analysis 
 - 🌱 I’m currently pursuing my master's from Dublin City University in Finance 
 - 💞️ I’m looking to collaborate on  New Projects
 - 📫 karanrajsingh0022@gmail.com
